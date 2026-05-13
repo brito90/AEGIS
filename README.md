@@ -1,0 +1,1 @@
+# O-Or-culo-de-Manuten-o-Preditiva-AI-First-
